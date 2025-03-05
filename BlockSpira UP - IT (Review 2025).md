@@ -138,7 +138,7 @@ Assolutamente sì.BlockSpira UP è pensata per accogliere sia neofiti che trader
 
 La piattaforma offre tutorial e guide passo passo per rendere il processo semplice e accessibile, permettendo anche a chi è alle prime armi di iniziare con sicurezza e consapevolezza.
 
-###BlockSpira UP offre un conto demo per i nuovi utenti?    
+### BlockSpira UP offre un conto demo per i nuovi utenti?    
 Sì,BlockSpira UP mette a disposizione un **conto demo** per tutti i nuovi utenti. Questo strumento è fondamentale per testare le operazioni e familiarizzare con la piattaforma senza investire denaro reale.  
 
 Il conto demo permette di apprendere le dinamiche del trading in un ambiente privo di stress, offrendo un’ottima opportunità per valutare le proprie strategie prima di passare al trading vero e proprio.
